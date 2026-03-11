@@ -1,5 +1,5 @@
 
-# Medfeetree | Outsourced Medical Billing Services Near Me | Outsourced Medical Billing Services Pricing | Outsourced Medical Billing Services Cost
+# Medfeetree | Outsourced Medical Billing Services Pricing | Outsourced Medical Billing Services Cost
 
 Running a healthcare practice today involves much more than providing excellent patient care. Physicians, clinic administrators, and healthcare staff constantly juggle clinical responsibilities with administrative workloads that continue to grow more complex every year. One of the most time-consuming and detail-oriented responsibilities is medical billing. From claim submissions and coding compliance to insurance follow-ups and payment reconciliation, billing tasks require expertise, accuracy, and consistent attention.
 
